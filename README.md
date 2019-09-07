@@ -1,6 +1,7 @@
 # 下一个路口，遇见。
 
 “夏天一去，又是冬季，711 暖杯巧克力，秒针转动didida，小小时差didida...”我们有多少个下一个路口？无论是民国女建筑师林徽因，理性而智慧地选择嫁给梁思成，从此坚定选择并用一生来回答梁思成，还是影视剧《我的前半生》中的罗子君遭受婚姻背叛后的职场逆袭，不给自己退路，蜕变成了另一个自己。
+http://image.baidu.com/search/detail?ct=503316480&z=undefined&tn=baiduimagedetail&ipn=d&word=林徽因的图片&step_word=&ie=utf-8&in=&cl=2&lm=-1&st=undefined&hd=undefined&latest=undefined&copyright=undefined&cs=1447238950,1836139264&os=211309867,3182399008&simid=4164582141,525545810&pn=47&rn=1&di=130460&ln=895&fr=&fmq=1567851362619_R&fm=&ic=undefined&s=undefined&se=&sme=&tab=0&width=undefined&height=undefined&face=undefined&is=0,0&istype=0&ist=&jit=&bdtype=0&spn=0&pi=0&gsm=0&hs=2&objurl=http%3A%2F%2Fimg.tukexw.com%2Fimg%2F687c55b68981cb54.jpg&rpstart=0&rpnum=0&adpicid=0&force=undefined
 
 下一个路口，发生在我们的起心动念时，发生在周遭事物变化后，让我们瞬间斩断继续在走的路，人生也因此而变得不同。之后，我们会认识不同的人，也会做不同的事。我们内心很清楚，以后的日子里，天平上不确定的筹码会加重很多，但我们内心深处渴望改变的心愿一定会大于那些不确定的筹码，那些质疑的声音、那些无人诉说的孤寂、那些无形的压力，足够考验一个人的内心渴望程度和应对这些的能力。
 
